@@ -6,3 +6,6 @@ jkhkljk'p;l
 anaa
 nali
 good
+nice
+apa
+khudi
